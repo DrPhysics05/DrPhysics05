@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DrPhysics05
+- 👀 I’m interested in coding/programing (Although still curently leaning to use programing languages!), golf, acting/drama/singing, photography and gardening.
+- 🌱 I’m currently learning Progaming languages.
+- 📫 How to reach me - leej0072005@gmail.com
